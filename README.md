@@ -1,0 +1,1 @@
+# ExplorerMax-No-Trial
